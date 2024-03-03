@@ -2,7 +2,7 @@
 - 👀 I’m interested in **web and software development**
 - 🌱 i’m currently studying **computer engineering**
 - 💞️ i’m looking to collaborate on projects
-- 📫 how to reach me: syahmihamdani321@gmail.com
+- 📫 how to reach me: syahmihamdani321@gmail.com @syahmihamdani @garlico
 - 😄 pronouns: he/him
 - ⚡ fun fact: i like rains
 
