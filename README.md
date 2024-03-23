@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @syahmihamdani
 - 👀 I’m interested in **software and web development**
-- 🌱 i’m currently studying **computer engineering**
+- 🌱 i’m currently studying **computer engineering** @ University of Indonesia
 - 💞️ i’m looking to collaborate on projects
 - 📫 how to reach me: syahmihamdani321@gmail.com @syahmihamdani @garlico
 - 😄 pronouns: he/him
